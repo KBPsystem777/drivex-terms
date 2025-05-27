@@ -1,6 +1,6 @@
 # 📜 Terms of Service
 
-**Qualification** – Kailangan may **LTO Pro License** ka
+**Qualification** – Kailangan may **Valid LTO License** ka
 
 **Verification** – Honest at totoo ang mga documents dapat
 
